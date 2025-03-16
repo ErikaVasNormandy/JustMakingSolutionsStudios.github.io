@@ -1,1 +1,1 @@
-Just Makeing Solutions Studios: JMStudios
+Just Making Solutions Studios: JMStudios
